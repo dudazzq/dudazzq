@@ -11,4 +11,5 @@ Meu nome é **Eduarda Menegari**
 - 🤔 00001132587657sp@al.educacao.sp.gov.br
 - 💬 **@dudazzq**
 - 
--  ![](https://tenor.com/pt-BR/view/twilight-gif-18289955)
+-  ![](https://media1.tenor.com/m/7TY2lSimCP4AAAAd/turn-around-jacob-black.gif)
+-  
